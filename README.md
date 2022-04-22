@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Najmudheen</h1>
 <h3 align="center">A passionate mobile application developer from India</h3>
 
-- 👨‍💻 All of my projects are available at [https://ebinumer.github.io/](ebinumer.github.io)
+- 👨‍💻 All of my projects are available at [ebinumer.github.io](https://ebinumer.github.io/)
 
 - 📝 Find me Here [https://g.dev/najuz](https://g.dev/najuz)
 
