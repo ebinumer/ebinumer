@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **iamnajmudheen7311@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1a2qQufHTP6ylK0_hr1HYqg7phWJ1bryt/view?usp=sharing](https://drive.google.com/file/d/1a2qQufHTP6ylK0_hr1HYqg7phWJ1bryt/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1N9NeAz0FSWIdGhcN5Yi-GgOYdVezLFjz/view?usp=share_link](https://drive.google.com/file/d/1a2qQufHTP6ylK0_hr1HYqg7phWJ1bryt/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
